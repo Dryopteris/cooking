@@ -1,11 +1,11 @@
 ### INGREDIENTS
-1 pound brussels sprouts, trimmed and halved through the stems (cut larger ones in quarters)
-3 tablespoons extra-virgin olive oil
-¼ teaspoon kosher salt
-2 garlic cloves, thinly sliced
-¼ cup balsamic vinegar
-1 teaspoon fresh lime juice, plus more for serving
-½ teaspoon soy sauce
+* 1 pound brussels sprouts, trimmed and halved through the stems (cut larger ones in quarters)
+* 3 tablespoons extra-virgin olive oil
+* ¼ teaspoon kosher salt
+* 2 garlic cloves, thinly sliced
+* ¼ cup balsamic vinegar
+* 1 teaspoon fresh lime juice, plus more for serving
+* ½ teaspoon soy sauce
 
  
 ### PREPARATION
