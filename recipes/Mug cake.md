@@ -1,9 +1,5 @@
 ## Chocolate mugcake
 
-### Directions
-1. Mix all ingredients together in a mug
-1. Cook in microvare for a little over a minute.
-
 ### Ingredients
 * 1/4 cup flour
 * 1/4 cup Sugar
@@ -16,3 +12,7 @@
 * 1 tsp Vanilla
 
 Chocolate Chips to taste
+
+### Directions
+1. Mix all ingredients together in a mug
+1. Cook in microvare for a little over a minute.
