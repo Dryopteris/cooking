@@ -1,7 +1,7 @@
-YIELD: 6 SERVINGS    
-PREP TIME: 15 MIN     
-COOK TIME: 25 MIN
-
+## Overview
+* Serves: 6 
+* Prep Time: 15 MIN     
+* Cook Time: 25 MIN
 
 ## INGREDIENTS
 * 16 oz (450g) Brussels sprouts, rinsed
