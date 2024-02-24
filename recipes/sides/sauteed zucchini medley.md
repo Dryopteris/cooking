@@ -1,8 +1,8 @@
 ### Ingredients
-zucchini
-onion
-1 can of corn (drained)
-Italian robusto dressing
+- zucchini
+- onion
+- 1 can of corn (drained)
+- Italian robusto dressing
 
 ### Directions
 1. chop zucchini and onion
