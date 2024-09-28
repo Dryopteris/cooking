@@ -2,16 +2,16 @@ Recipe from Julie Stouffer
 makes 3 dozen cookies
 
 ### Ingredients
-1 c. softened butter
-1 c. white sugar 
-1 c. packed brown sugar
-2 eggs
-2 tsp. vanilla extract
-3 c. flour 
-1 tsp. baking soda
-2 tsp. hot water
-½ tsp. salt
-2 c. semisweet chocolate chips
+- 1 c. softened butter
+- 1 c. white sugar 
+- 1 c. packed brown sugar
+- 2 eggs
+- 2 tsp. vanilla extract
+- 3 c. flour 
+- 1 tsp. baking soda
+- 2 tsp. hot water
+- ½ tsp. salt
+- 2 c. semisweet chocolate chips
 
 ### Instructions
 1. preheat to 350°F
