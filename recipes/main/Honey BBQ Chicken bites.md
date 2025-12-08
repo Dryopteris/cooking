@@ -21,7 +21,7 @@ Sweet. Smoky. Unreal.
 - ½ cup honey, 170g, 6oz
 - 3¼ tsp water, 0.7fl oz
 
-🔥 Method
+## Instructions
 - Season the chicken 
 - Dip in the egg mix then coat in crushed cornflakes
 - Air fry at 190C or 374F for 12 minutes flip halfway
