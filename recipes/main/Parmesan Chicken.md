@@ -1,8 +1,8 @@
 ## Ingredients 
-* 1 cup miracle (light) whip (Mayo is fine too, it's all the same crap)
-* ½ cup grated parmesan cheese
-* 2 tsp oregano 
-* 2-3 lbs chicken breast
+* ½ cup miracle (light) whip (Mayo is fine too, it's all the same crap)
+* ¼ cup grated parmesan cheese
+* 1 tsp oregano 
+* 1 lbs chicken breast
 
 ## Instructions
 1. mix miracle whip, parmesan, and oregano
