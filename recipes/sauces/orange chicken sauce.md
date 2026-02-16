@@ -2,7 +2,7 @@
 
 ## Ingredtients
 
-* set 1
+### set 1
   * 1 tbsp cornstarch
   * 2 tbsp rice wine (dry vermouth is substitute)
   * ¼ cup water
@@ -11,7 +11,7 @@
   * 10 tbsp Sugar
   * 10 tbsp white vinegar
   * zest of 1 orange
-* set 2
+#### set 2
   * 1½ tbsp ginger minced
   * 2 tsp garlic minced
   * ½ tsp red pepper flakes
