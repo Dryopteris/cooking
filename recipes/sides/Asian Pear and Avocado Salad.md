@@ -17,3 +17,6 @@
 1. Gently toss in the dressing to taste
 1. Add the avocado, and most of the almonds
 1. Garnish with the remaining almonds
+
+
+[Source](https://www.cbsnews.com/news/recipe-chrissy-teigen-asian-pear-avocado-salad/) (Found by Peter G.)
