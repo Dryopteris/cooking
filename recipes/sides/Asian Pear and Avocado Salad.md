@@ -8,7 +8,7 @@
 - ½ red onion, sliced
 - 1 firm-ripe avocado, peeled and sliced
 - ½ cup sliced almonds, lightly toasted
-- Sesame Ginger Dressing (recipe below)
+- [Sesame Ginger Dressing](https://github.com/Dryopteris/cooking/blob/main/recipes/sides/Sesame%20Ginger%20Dressing.md)
 
 ## Instructions
 1. Make Dressing
