@@ -21,3 +21,4 @@
 > [!NOTE]
 > No blender? You can finely mince the ginger and garlic and shake all the ingredients in a jar until smooth and creamy.
 
+[Source](https://www.cbsnews.com/news/recipe-chrissy-teigen-asian-pear-avocado-salad/) (Found by Peter G.)
