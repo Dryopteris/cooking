@@ -1,5 +1,5 @@
 ## Yield
-serves 6-8
+serves 6-8  
 optionally as chicken, breaded or grilled
 
 ## Ingredients 
