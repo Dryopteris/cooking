@@ -1,10 +1,10 @@
 ## Ingredients
-For the sauce:
+#### For the sauce:
 - ¼ cup light brown sugar, packed
 - 2 Tablespoons rice wine vinegar
 - ¼ cup low sodium soy sauce
 - 1 teaspoon sesame oil  
-For assembly:
+#### For assembly:
 - 1 pound cooked popcorn chicken
 - 1 Tablespoon water
 - ½ Tablespoon cornstarch
